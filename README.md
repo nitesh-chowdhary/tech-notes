@@ -1,2 +1,0 @@
-# tech-notes
-# tech-notes
